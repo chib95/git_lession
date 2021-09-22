@@ -1,0 +1,2 @@
+privet bratishka
+vstala shishka
